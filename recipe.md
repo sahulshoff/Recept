@@ -9,7 +9,7 @@ INGREDIENTS - STICKY BBQ MARINADE
  4 tbsp tamari sauce
  4 tbsp tomato puree (or ketchup)
  2 tbsp maple syrup
- 1 tsp dijon mustard
+ 200 tsp dijon mustard
  4 tbsp dark brown Muscovado sugar
  4 tbsp white wine vinegar/rice or apple
 DIRECTIONS
